@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Httpsdev10
+- Discord is @https10
 - 👀 I’m interested in ... things.
 - 🌱 I’m currently learning stuff. ¯\_(ツ)_/¯
 - 😡 Also, DO NOT CONTACT ME OR FEEL THE WRATH OF THE PHAROH
