@@ -2,8 +2,7 @@
 - Discord is @https10
 - 👀 I’m interested in ... things.
 - 🌱 I’m currently learning stuff. ¯\_(ツ)_/¯
-- 😡 Also, DO NOT CONTACT ME OR FEEL THE WRATH OF THE PHAROH
-- 📫 How to reach me: Don't.
+- 😡 Also, only contact if I know you and such.
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: meow meow mewo meow
 
